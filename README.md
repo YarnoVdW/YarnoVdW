@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YarnoVdW
-- 👀 I’m interested in Cyber security
+- 👀 I’m interested in science in general! But i loooove computers :D 
 - 🌱 I’m currently studying computer sciences
 
 
